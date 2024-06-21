@@ -13,4 +13,4 @@
 https://trakteer.id/tim_it/tip
 
       Kirimkan bukti trakteer ke email kami :
-- r00t[at]imac.my.id
+- smartpuskes[at]gmail.com
