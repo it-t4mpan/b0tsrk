@@ -11,3 +11,6 @@
 - Untuk key.php , silahkan melakukan donasi melalui
 
 https://trakteer.id/tim_it/tip
+
+      Kirimkan bukti trakteer ke email kami :
+- r00t[at]imac.my.id
